@@ -6,6 +6,8 @@ Somos uma HRTech e nosso propósito é criar **ambientes de trabalho mais felize
 
 Aqui na Feedz **valorizamos muito a diversidade** e queremos Parrots que queiram voar conosco, **independente da etnia, gênero, sexualidade, nacionalidade, idade ou deficiência!** Temos sempre vagas de tecnologia abertas, caso queira conferir e conhecer melhor nosso time, **acesse nossa página de carreiras:** https://www.feedz.com.br/vagas/
 
+📌Grupo no Whats de vagas tech na Feedz: https://bit.ly/whatsfeedz 
+
 **Vem pro ninho 💛 #flyfeedz #voafeedz**
 
 ![1639168692795](https://user-images.githubusercontent.com/70659029/197847092-370fdfd5-e111-447a-9f8b-8592211e828b.jpg)
